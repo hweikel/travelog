@@ -7,7 +7,7 @@ I pulled off the 101 at Chualar and took the frontage road through the Salinas f
 
 ![](/posts/2020-04-25/salinas.JPG)
 
-By early evening, I was in San Francisco. Ian had recently moved into a NoPa apartment with Alix, an engineer who worked on Macbook speakers. Alix gave off the sense of money but was the only person I’d met who could match Ian’s enthusiasm for the world. We biked to Ocean Beach, swam, and decided abruptly  to leave for Oregon that night while dangling from the flimsy metal facade of the de Young.
+By early evening, I was in San Francisco. Ian had recently moved into a NoPa apartment with Alix, an engineer who worked on Macbook speakers. Alix gave off the sense of east coast power but was the only person I’d met who could match Ian’s enthusiasm for the world. We biked to Ocean Beach, swam, and decided abruptly  to leave for Oregon that night while dangling from the flimsy metal facade of the de Young.
 
 Ian and Alix made out ferociously in the back seat as The Beths played and I drove through the night. In the darkness, the final grade dropping into Shasta was terrifying, and I called a friend named Tory to see if we could sleep in his cabin. After a whispered conversation on the porch, we shuffled inside, and I passed a fitful night on a bare mattress that smelled like thrift stores.
 
