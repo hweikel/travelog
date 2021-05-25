@@ -1,7 +1,7 @@
 ---
 title: Late spring in the Cairngorms
 ---
-A train to Aviemore, then out past Loch an Eilein to the boggy trails northwest of Ben Macdui and the Caingorm plateau.
+The dawn train to Aviemore, then out past Loch an Eilein to the boggy trails northwest of Ben Macdui and the Caingorm plateau.
 
 ![](/posts/2021-05-22/cairngorms1.JPG)
 ![](/posts/2021-05-22/cairngorms2.JPG)
