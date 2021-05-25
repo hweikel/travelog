@@ -1,7 +1,7 @@
 ---
 title: The Glittering Plain
 ---
-Three miles up the coast to Seamill, through a series of miniaturized pastel developments beneath the gorse-covered hills.
+We walked three miles up the coast to Seamill, passing through a series of miniaturized pastel developments beneath the gorse-covered hills.
 
 ![](/posts/2021-05-11/seamill1.JPG)
 
