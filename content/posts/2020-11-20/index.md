@@ -24,7 +24,7 @@ By now, all the ATV tours had converged on the hill and there were dozens of peo
 
 ![](/posts/2020-11-20/goreme.MOV)
 
-A cry rose up as the sun fell below the horizon. We made our way up to the peak and balanced on the large rock at its edge, leaning out over the desert to watch the dry air swell with pinks and reds unknown in Karaköy. An American named Ken offered to take our picture. He was a compact, well-groomed data scientist who had graduated from Irvine in the 80s and was now living in a rental car, building apps as he roamed from Berlin to Istanbul. After chatting about LA, Ken offered us a ride to the underground cities of Derinkuyu and Kaymakli the next day and then drove us back to our small room, where we ate our second Sichuanese meal of the day and fell asleep beneath the jagged hole in the ceiling.
+A cry rose up as the sun fell below the horizon. We made our way up to the peak and balanced on the large rock at its edge, leaning out over the desert to watch the dry air swell with pinks and reds unknown in Karaköy. A compact, well-groomed American named Ken offered to take our picture. He was a data scientist who had graduated from Irvine in the 80s and was now living in a rental car, building apps as he roamed from Berlin to Istanbul. After chatting about LA, Ken offered us a ride to the underground cities of Derinkuyu and Kaymakli the next day and then drove us back to our small room, where we ate our second Sichuanese meal of the day and fell asleep beneath the jagged hole in the ceiling.
 
 ![](/posts/2020-11-20/goreme6.JPG)
 
