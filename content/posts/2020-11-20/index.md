@@ -16,7 +16,7 @@ On the way, we had met a windswept Russian poking around the fairy chimneys, his
 
 There were rumors of a hilltop where young travelers congregated at dusk, so we followed the highway north out of town, cutting through dusty roadside farms and infertile orchards as ATV tours roared past, led by confident young men who balanced on the handlebars and flashed lurid smiles at their convoys of Central Asian tourists. A jeep spun haphazard doughnuts in a nearby field, flanked by two German Shepherds who ran and snapped at the wheels.
 
-At the base of one of the larger mountains, we followed a droning noise deep into a tunnel, where we discovered an elaborate generator system, with thickly insulated extension cords leading back out and up a slope, where the stone face opened to reveal a patio looking out over Rose Valley—a complete home, with mismatched materials jackhammered into the rock and cleverly hidden from the highway. Farther along the path, we followed the sound of throbbing, trance-like music across a dry creekbed and pushed up through chalky white soil to a low, folded ridgeline, streaked with lines of yellow sediment.
+At the base of one of the larger mountains, we followed a droning noise deep into a tunnel, where we discovered an elaborate generator system. Thickly insulated extension cords trailed up a slope, and the stone face opened to reveal a patio looking out over Rose Valley—a complete home, with mismatched materials jackhammered into the rock and cleverly hidden from the highway. Farther along the path, we followed the sound of throbbing, trance-like music across a dry creekbed and pushed up through chalky white soil to a low, folded ridgeline, streaked with lines of yellow sediment.
 
 ![](/posts/2020-11-20/goreme5.JPG)
 
