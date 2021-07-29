@@ -25,7 +25,7 @@ What was left of the buildings’ walls stood out as a faint, raised outline in 
 ![](/posts/2021-07-25/massarelos5.jpg)
 ![](/posts/2021-07-25/massarelos9.JPG)
 
-Through a larger hole in the ivy, I could make out more tarp structures—though these were farther down than seemed possible, suggesting that this was a higher story than I’d imagined.
+Through a larger hole in the ivy, I could make out more tarp structures—though these were farther down than seemed possible, suggesting that this was a higher story than I’d imagined. I couldn't stop thinking about the first scene from *Spirited Away*. A better version of me would have done a pencil dive into the ivy-clad abyss.
 
 Farther south, I rejoined the path as it sank back into the colorful houses and narrow squares.
 
