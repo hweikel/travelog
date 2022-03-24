@@ -23,7 +23,7 @@ I was tempted by a long spine of golden stone on the horizon. It seemed to conti
 ![](/posts/2022-03-22/jura9.JPG)
 ![](/posts/2022-03-22/jura10.JPG)
 
-Soon, however, the spine ended abruptly, and we were faced with shear drops on all sides, carpeted with thick leaves and scattered rocks. Below, we could see the path and the river.
+Soon, however, the spine ended abruptly, and we were faced with sheer drops on all sides, carpeted with thick leaves and scattered rocks. Below, we could see the path and the river.
 
 ![](/posts/2022-03-22/jura10a.JPG)
 
