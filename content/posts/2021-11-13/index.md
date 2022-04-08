@@ -10,13 +10,13 @@ We rented a car and took the long way up to Skye, passing through Glencoe. A sto
 ![](/posts/2021-11-13/skye1.JPG)
 ![](/posts/2021-11-13/skye2.JPG)
 
-An Israeli couple already inside gave us some cheap whisky and told us about their art. The woman snored while the man laughed in his sleep. We woke to an ethereal sunrise – all the Scottish purples caught in heath-bound puddles.
+An Israeli couple already inside gave us some cheap whisky and told us about their art. The woman snored while the man laughed in his sleep. We woke to an ethereal sunrise – all the Scottish purples shining out of heath-bound puddles.
 
 ![](/posts/2021-11-13/skye3.JPG)
 ![](/posts/2021-11-13/skye4.JPG)
 ![](/posts/2021-11-13/skye5.JPG)
 
-Morning was spent hiking around the Old Man of Storr—the pinnacles fading in and out of sheets of fog.
+Morning was spent hiking around the Old Man of Storr.
 
 ![](/posts/2021-11-13/skye6.JPG)
 ![](/posts/2021-11-13/skye7.JPG)
