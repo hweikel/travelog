@@ -79,7 +79,7 @@ The final spine was slick and narrow and fully exposed, with wind so strong that
 
 ![](/posts/2021-11-13/skye32.JPG)
 
-Then it was back down the chute—the fog moving slow and heavy across the mithril streaks across the corrie.
+Then it was back down the chute—the fog moving slow and heavy over the mithril streaks across the corrie.
 
 ![](/posts/2021-11-13/skye33.jpg)
 
