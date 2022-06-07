@@ -73,7 +73,7 @@ The College of Music was something out of an Inigo Jones set. I linger on Kyung 
 
 Minutes away was breezy Hankuk University of Foreign Studies, enlivened by a student activity fair but still in gloomy Kyung Hee’s shadow. The people manning the Outdoors Club table saw my Los Padres National Forest hat and stopped me. We talked about Hallasan and Seoraksan and the Korean fixation with building colleges around mountains. I couldn’t convince them that I wasn’t another American exchange student named Nick that they’d met earlier that day. “You so funny, Nick. New haircut. Pretend you don’t know me.” Groups of students in colorful clothing milled around, laughing and speaking in English. I could tell that the one student I saw up at Kyung Hee (double-breasted suit and a center-part) wouldn’t have tolerated them.
 
-![](/posts/2022-05-04/34 - honkuk.JPG)
+![](/posts/2022-05-04/34 - hankuk.JPG)
 
 Entering through the back, K-Arts felt like someone else’s memory of a summer camp. There were sandy lots and whitewashed buildings and students practicing traditional drum music in the studios above; everything smelled like pine needles and cinnamon. These last three campuses all clung to the base of Cheonjangsan and the Uireung burial mounds, which I climbed for a better view of the Grand Peace Hall.
 
