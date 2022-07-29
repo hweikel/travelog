@@ -15,7 +15,7 @@ It’s deeper than it looks online, and the paths on either side are planted wit
 ![](/posts/2022-05-04/3 - ewha.JPG)
 ![](/posts/2022-05-04/4 - ewha.JPG)
 
-Like all good campuses, Ewha is on a sharp slope. As you climb north, the trees gather in incredible varieties; paths fork off to department buildings and small glades. After half an hour, I was at the foot on Ansan. Though nobody could tell me why, Korean universities are always built around mountains, with one peak serving as many as three campuses, each with their own set of trails. The conceit of a good athletic chant, I was assured, often rested on a lewd comparison of mountain height.
+Like all good campuses, Ewha is on a sharp slope. As you climb north, the trees gather in incredible varieties; paths fork off to department buildings and small glades. After half an hour, I was at the foot of Ansan. Though nobody could tell me why, Korean universities are always built around mountains, with one peak serving as many as three campuses, each with their own set of trails. The conceit of a good athletic chant, I was assured, often rested on a lewd comparison of mountain height.
 
 ![](/posts/2022-05-04/5 - ansan.JPG)
 ![](/posts/2022-05-04/6 - ansan.JPG)
