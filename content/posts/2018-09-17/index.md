@@ -13,4 +13,4 @@ For nearly a minute, there was nothing but the expanse of soft leaves and the so
 
 ![](/posts/2018-09-17/icelandbush3.jpeg)
 
-Inside, it was completely silent and dry. I walked through the network of “rooms” at a crouch, following the bush 100 feet along the park’s edge and then back to my gear. I laid my camping pad between the cartoon boulders and slept for a pristine six hours, awaking completely dry in time to catch my next flight.
+Inside, it was completely silent and dry. I walked through the network of “rooms” at a crouch, following the bush 100 feet along the park’s edge and then back to my gear. I laid my camping pad between the cartoon boulders and slept for a pristine six hours, waking completely dry in time to catch my next flight.

@@ -4,6 +4,7 @@ title: Rose Valley Sunset
 East of Göreme, we climbed through monastic cells and dark churches carved into outlandish formations of soft, pale stone.
 
 ![](/posts/2020-11-20/goreme1.jpg)
+![](/posts/2020-11-20/goremexx.JPG)
 ![](/posts/2020-11-20/goreme2.JPG)
 
 Hidden from the sun since the 10th century, the domes had some of the richest blues I'd ever seen.
