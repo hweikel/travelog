@@ -9,7 +9,7 @@ A desperate drive to the northern tip of Hokkaido had left me depleted and with 
 
 By contrast, Kyoto was like a commercial for the good life: warm and bright, split by the hale median of the Kamogawa into a grid of riverside parks and delicate wood houses. Long thin skerries dotted the river, covered with tall grass and patrolled by egrets and herons. 
 
-![](/posts/2022-11-22/1.jpg)
+![](1.jpg)
 ![](/posts/2022-11-22/2.jpg)
 
 Upstream, at the dramatic confluence of the Kamo and Takano, rows of broad stepping stones carved into turtles led out to a triangular delta, where the banks sloped sharply up to a tree-lined park. Students lounged everywhere, playing music and baseball, making short films, laughing as they ate convenience store desserts. I recovered quickly.
