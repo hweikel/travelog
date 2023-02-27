@@ -5,7 +5,7 @@ title: Midnight Cafe ShinShinShin
 
 I reached Kyoto in rough shape.
 
-A desperate drive to the northern tip of Hokkaido had left me depleted and with a persistant numbness in a few fingers. I'd driven twelve hours to stare at a Russian island on the horizon and then waited out a blizzard in a natural hotspring, submerged to my nose beside a toad-like man who sat up serenely, half-covered by the snow. When I stumbled into her jazz bar in Sapporo a few days later, Ryo Fukui's widow gave me a spoonful of cod semen and told me to take better care of myself.
+A desperate drive to the northern tip of Hokkaido had left me depleted and with a persistant numbness in a few fingers. I'd driven twelve hours to stare at some Russian islands on the horizon and then waited out a blizzard in a sulfurous pond, submerged to my nose beside a toad-like man who sat up serenely, half-covered by snow. When I stumbled into her jazz bar in Sapporo a few days later, Ryo Fukui's widow served me a dish of warm cod semen and told me to take better care of myself.
 
 By contrast, Kyoto was like a commercial for the good life: warm and bright, split by the hale median of the Kamogawa into a grid of riverside parks and delicate wood houses. Long thin skerries dotted the river, covered with tall grass and patrolled by egrets and herons. 
 
