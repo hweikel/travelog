@@ -1,5 +1,5 @@
 ---
-title: Braeriach Traverse
+title: Summer in the Kingdom
 ---
 They had cracked down on the hooning by the time I arrived.
 
