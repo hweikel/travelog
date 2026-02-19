@@ -7,9 +7,9 @@
 	<title>{{ block "title" . }}{{ end }}</title>
 	<meta name="description" content="">
 
-	<link rel="stylesheet" href="/css.css">
+	<link rel="stylesheet" href="{{ "css.css" | relURL }}">
 	{{ block "stylesheet" . }}{{ end }}
-	<link rel="shortcut icon" href="/re_favicon.png">
+	<link rel="shortcut icon" href="{{ "re_favicon.png" | relURL }}">
 	<link href="https://fonts.googleapis.com/css?family=Noto+Serif+KR|Noto+Serif+JP|Noto+Serif+TC&display=swap" rel="stylesheet">
 
 	<!-- Global site tag (gtag.js) - Google Analytics -->
@@ -30,7 +30,7 @@
 		</div>-->
 		<header>
 			<div class="site-title">
-				<a href="/">Starlight Convenience</a>
+				<a href="{{ "/" | relURL }}">Starlight Convenience</a>
 			</div>
 			<nav>
 				<a href="http://henryweikel.net">(by Henry W.)</a>
@@ -58,6 +58,6 @@
 	<footer>
 	</footer>
 </div>
-<script src="/js.js"></script>
+<script src="{{ "js.js" | relURL }}"></script>
 </body>
 </html>
